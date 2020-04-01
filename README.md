@@ -19,8 +19,6 @@ Tengo dos perras, Lola y Jimena, entreno recreativamente Boxeo durante la semana
 - Percy Jackson (toda la saga)
 - Game of Thrones
  
- Dejo mi [Instagram](https://www.instagram.com/mati.argonz/?hl=es-la) 
- 
- mi [LinkedIn](https://www.linkedin.com/in/matias-argonz-076126163/)
+ Dejo mi [Instagram](https://www.instagram.com/mati.argonz/?hl=es-la) y mi [LinkedIn](https://www.linkedin.com/in/matias-argonz-076126163/)
  
  ![Foto mia](https://github.com/pdepmartestm/presentacion-ArgonzMatias/blob/master/WhatsApp%20Image%202020-04-01%20at%2002.17.03.jpeg)
